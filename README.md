@@ -1,0 +1,1 @@
+# srednja-strukovna
